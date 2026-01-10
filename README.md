@@ -33,10 +33,10 @@ Implicara la perdida de tu cita y el re-agendamiento de una nueva por el mismo v
 - **Presentarse bajos los efectos del alcohol y/o drogas**
 	***(Si consumes sustancias, drogas o alcohol durante la sesión, se dará por terminada la relación laboral y el proyecto de forma inmediata, sin importar su avance y sin rembolso de lo ya pagado.)***
 
-### ¡CANCELACIÓN DE CITA!
-Puedes cancelar o retractarte de cualquier proyecto en cualquier momento entendiendo que:
+### ¡CANCELACIÓN DEL SERVICIO!
+Puedes cancelar o retractarte de cualquier proyecto en cualquier momento pero ten presente que:
 
-- **SIN EXECPCIÓN, no se hace devolución de dinero total ni parcial  después de los 5 días hábiles siguientes a la reserva o pago del proyecto como lo indica la ley de retracto colombiana. *De acuerdo con lo establecido en el Artículo 47 de la Ley 1480 de 2011 (Estatuto del Consumidor)*
+- **Según la Ley 1480 de 2011, las devoluciones totales o parciales aplican únicamente dentro de los primeros 5 días hábiles después de tu reserva o pago, así pues por tratarse de proyectos personalizados, después de este plazo no es posible realizar devoluciones*
 
 > *Gracias por valorar y respetar el arte y la dedicación que conlleva cada tatuaje.*
 
