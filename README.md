@@ -8,7 +8,7 @@ Términos y condiciones del servicio de tatuaje realista.
   - Reserva del espacio, tiempo y materiales.
 
 ### Sobre el diseño o referencia
-- La fotografía o diseño de referencia elegido se revelara y producira digitalmente, (Según lo acordado por el chat de venta) esto puede o no generar ligeros cambios de iluminación, color, saturación y principalmente fondo a consideración artística para su correcta reproducción en la piel. *(Podrás ver estos ajustes en la cita de tatuaje)*
+- Se revelara o producira digitalmente el diseño, (Según lo acordado por el chat de venta) esto puede o no generar ligeros cambios de iluminación, color, saturación y principalmente fondo a consideración artística para su correcta reproducción en la piel. *(Podrás ver estos ajustes en las propuestas enviadas por chat y deberás aprobar el diseño previo a la cita)*
 - Cambios menores pueden realizarse el día de la cita. *(Ajustes breves de iluminación, tono o saturación)* 
 
 ---
@@ -28,15 +28,14 @@ Términos y condiciones del servicio de tatuaje realista.
 Implicara la perdida de tu cita y el re-agendamiento de una nueva por el mismo valor inicial, cualquiera de las siguientes situaciones sin excepción:
 
 - **Reprogramaciones de fecha u hora con menos de 48 horas de antelación.**
-- **Cambios mayores como: cambios de fotografía de referencia o de modelo.**
+- **Cambios de fotografía de referencia y tema del diseño** 
+- **Cambios de elementos que impliquen la reimpresión y elaboración de una nueva plantilla posterior a su aprobación**
 - **Llegada tarde por más de 60 minutos de retraso.**
 - **Presentarse bajos los efectos del alcohol y/o drogas**
 	***(Si consumes sustancias, drogas o alcohol durante la sesión, se dará por terminada la relación laboral y el proyecto de forma inmediata, sin importar su avance y sin rembolso de lo ya pagado.)***
 
-### ¡CANCELACIÓN DEL SERVICIO!
-Puedes cancelar o retractarte de cualquier proyecto en cualquier momento pero ten presente que:
-
-- **Según la Ley 1480 de 2011, las devoluciones totales o parciales aplican únicamente dentro de los primeros 5 días hábiles después de tu reserva o pago, así pues por tratarse de proyectos personalizados, después de este plazo no es posible realizar devoluciones*
+### ¡SERVICIOS PERSONALIZADOS & DERECHOS DE RETRACTO!
+- **Cada obra que realizó es concebida de manera única, siguiendo tus especificaciones y deseos. Por su carácter exclusivo y personalizado, estos servicios no están sujetos a devolución ni retracto, conforme al artículo 47 de la Ley 1480 de 2011 (Estatuto del Consumidor)*
 
 > *Gracias por valorar y respetar el arte y la dedicación que conlleva cada tatuaje.*
 
